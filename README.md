@@ -2,7 +2,7 @@
 - 👀 I’m interested in Philosiphy, and writing
 - 🌱 I’m currently learning haskal
 - 💞️ I’m looking to collaborate on writing projects
-- 📫 How to reach me arctic.framework@gmail.com
+- 📫 How to reach me alerthi_there discord
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am actually a medical AI coder, this is my secret side account shhhh.
 
